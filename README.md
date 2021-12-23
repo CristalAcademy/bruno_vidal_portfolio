@@ -1,1 +1,0 @@
-# bruno_vidal_portfolio
